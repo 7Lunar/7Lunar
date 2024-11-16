@@ -1,2 +1,2 @@
-# Hi, I’m @7Lunar
+# Hi, I’m 7Lunar
 
